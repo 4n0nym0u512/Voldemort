@@ -9,3 +9,7 @@ Also you are requested if you find any issue fix it and i will merge it.
 # Warning
 
 This is made just for educational purposes so using it for illegeal purposes is prohibited . Use it to make your computer safe , not for stealing data of others .  
+
+# Contact
+
+To contact , You can mail at - An0nym0u512@yahoo.com 
